@@ -143,4 +143,4 @@ For any inquiries or questions, please [Contact US](https://www.miniai.live/cont
 [MiniAiLive](https://www.miniai.live/) is a leading AI solutions company specializing in computer vision and machine learning technologies. We provide cutting-edge solutions for various industries, leveraging the power of AI to drive innovation and efficiency.
 
 ## Contact US
-For any inquiries or questions, please contact us on [WhatsApp](https://wa.me/+15168245948).
+For any inquiries or questions, please contact us on [WhatsApp](https://wa.me/+19162702374).
